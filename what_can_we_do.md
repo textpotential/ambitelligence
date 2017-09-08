@@ -13,3 +13,4 @@ Why do we call emerging intelligence artificial? Why not something else, like am
 It is different to write in lines, maybe closer to poetry, but I wouldn't know about poetry.
 
 What can we do here?
+What will we do here?
